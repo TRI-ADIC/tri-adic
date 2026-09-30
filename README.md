@@ -4,7 +4,7 @@ He/Him ✝️ 23y/o
 
 John 3:16
 
-Making games and art, studying religion and philosophy on the side.
+Making games and art. Studying religion and philosophy on the side.
 
 Inquiring Catholic
 
